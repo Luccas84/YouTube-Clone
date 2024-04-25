@@ -1,4 +1,4 @@
-![preview_1](https://github.com/Luccas84/Landing-page-Starbucks/assets/167586263/983aea8d-7e9a-4372-ba4f-3c71c0b76293)
+![preview_2](https://github.com/Luccas84/YouTube-Clone/assets/167586263/552f4d91-be72-41a0-bf25-c210f73bbac6)
 
 # Página do Starbucks
 
